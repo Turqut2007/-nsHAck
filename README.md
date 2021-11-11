@@ -1,2 +1,0 @@
-# -nsHAck
-İnstagram hack
